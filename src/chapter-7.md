@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Diversity and Inclusion
-=========================================================
 
 Managing resistance to diversity and inclusion is an important aspect of building a more equitable and successful organization. In this chapter, we will discuss techniques for identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

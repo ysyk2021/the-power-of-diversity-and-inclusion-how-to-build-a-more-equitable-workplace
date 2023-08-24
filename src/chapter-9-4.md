@@ -1,5 +1,3 @@
-Avoiding Information Overload
-===========================================================================================
 
 Leveraging technology for diversity and inclusion can be a powerful tool, but it can also lead to information overload. In this chapter, we will discuss techniques for avoiding information overload.
 

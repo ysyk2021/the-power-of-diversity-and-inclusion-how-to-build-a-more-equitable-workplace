@@ -1,5 +1,3 @@
-Benefits of Building a More Equitable Workplace
-========================================================================
 
 Building a more equitable workplace is not only the right thing to do, but it also has numerous benefits for organizations. In this chapter, we will discuss the benefits of building a more equitable workplace.
 

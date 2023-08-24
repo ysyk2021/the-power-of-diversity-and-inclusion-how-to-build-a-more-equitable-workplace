@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Continuous learning and improvement are essential components of building a more equitable workplace culture. In this chapter, we will discuss techniques for promoting continuous learning and improvement while measuring results and learning from experience.
 

@@ -1,5 +1,3 @@
-Chapter 3: Developing a Diverse and Inclusive Mindset
-=====================================================
 
 Developing a diverse and inclusive mindset is an important component of building a more equitable workplace. In this chapter, we will discuss techniques for cultivating a diverse and inclusive mindset.
 

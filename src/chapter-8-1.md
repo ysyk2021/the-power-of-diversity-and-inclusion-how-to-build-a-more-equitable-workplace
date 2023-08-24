@@ -1,5 +1,3 @@
-Encouraging Proactive Diversity and Inclusion Across the Organization
-==========================================================================================================================
 
 Creating a diverse and inclusive workplace culture requires more than just individual efforts. In this chapter, we will discuss techniques for encouraging proactive diversity and inclusion across the organization.
 

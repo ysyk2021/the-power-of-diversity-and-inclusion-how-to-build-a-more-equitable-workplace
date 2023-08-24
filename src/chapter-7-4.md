@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-=====================================================================================
 
 Fostering a growth mindset is an important aspect of managing resistance to diversity and inclusion initiatives. In this chapter, we will discuss how a growth mindset can help overcome resistance and promote a more equitable workplace.
 

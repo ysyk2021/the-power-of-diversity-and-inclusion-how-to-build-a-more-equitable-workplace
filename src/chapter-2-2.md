@@ -1,5 +1,3 @@
-Understanding the Science Behind Diversity and Inclusion
-=====================================================================================================
 
 Diversity and inclusion are more than just buzzwords; they are backed by scientific research. In this chapter, we will discuss the science behind diversity and inclusion and how it impacts the workplace.
 

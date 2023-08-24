@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Diversity and Inclusion
-==============================================================================================================================
 
 Managing resistance to diversity and inclusion is an important aspect of building a more equitable workplace. In this chapter, we will discuss the common sources of resistance to diversity and inclusion initiatives.
 

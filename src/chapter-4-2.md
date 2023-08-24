@@ -1,5 +1,3 @@
-Recognizing How Diversity Contributes to Success
-=================================================================================================
 
 Understanding the power of diversity is essential for building a more equitable and successful workplace. In this chapter, we will discuss how diversity contributes to success and why it is important to recognize and celebrate diverse perspectives and experiences.
 

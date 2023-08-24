@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-=====================================================================================================
 
 Leveraging technology for diversity and inclusion can be a powerful tool in fostering accessibility and inclusivity. In this chapter, we will discuss techniques for using technology to foster accessibility and inclusivity.
 

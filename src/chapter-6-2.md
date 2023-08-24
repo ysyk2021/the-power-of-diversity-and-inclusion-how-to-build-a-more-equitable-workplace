@@ -1,5 +1,3 @@
-Developing Strategies for Leading Diversity and Inclusion
-====================================================================================================================
 
 Developing strategies for leading diversity and inclusion is essential for building a more equitable and successful organization. In this chapter, we will discuss how to develop strategies for leading diversity and inclusion in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Diversity
-===============================================
 
 Understanding the power of diversity is essential for building a more equitable and successful organization. In this chapter, we will discuss the benefits of focusing on diversity, recognizing how diversity contributes to success, analyzing the impact of diversity on individuals and organizations, and addressing limiting beliefs.
 

@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=====================================================================================================
 
 Developing a diverse and inclusive mindset is essential for building a more equitable and successful organization. In this chapter, we will discuss how to utilize positive self-talk and visualization to develop a diverse and inclusive mindset.
 

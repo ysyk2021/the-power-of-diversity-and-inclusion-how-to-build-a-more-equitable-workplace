@@ -1,5 +1,3 @@
-Identifying Diversity and Inclusion Technologies and Resources
-============================================================================================================================
 
 Identifying diversity and inclusion technologies and resources is the first step in leveraging technology for diversity and inclusion. In this chapter, we will discuss techniques for identifying diversity and inclusion technologies and resources.
 

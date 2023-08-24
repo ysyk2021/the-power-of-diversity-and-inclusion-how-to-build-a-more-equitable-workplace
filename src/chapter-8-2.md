@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-==================================================================================================================
 
 Providing training and professional development opportunities is an important component of creating a diverse and inclusive workplace culture. In this chapter, we will discuss techniques for providing training and professional development opportunities that promote diversity and inclusion.
 

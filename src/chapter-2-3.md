@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Diversity and Inclusion
-========================================================================================================
 
 Assessing your personal approach to diversity and inclusion is an important step towards building a more equitable workplace. In this chapter, we will discuss techniques for assessing your personal approach to diversity and inclusion.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 Building a more equitable workplace requires a concerted effort from leaders and employees at all levels of an organization. In this final chapter, we will recap key strategies for building a more equitable workplace and offer final thoughts and advice.
 

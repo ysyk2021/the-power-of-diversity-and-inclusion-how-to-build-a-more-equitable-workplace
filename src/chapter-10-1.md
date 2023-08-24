@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is essential for building a more equitable workplace through diversity and inclusion. In this chapter, we will discuss techniques for tracking progress and measuring results in diversity and inclusion initiatives.
 

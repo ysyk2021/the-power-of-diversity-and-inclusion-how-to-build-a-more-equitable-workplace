@@ -1,5 +1,3 @@
-Overview of Diversity and Inclusion
-================================================================================
 
 Diversity and inclusion are important topics in today's workplace. In this chapter, we will define diversity and inclusion and provide an overview of these concepts.
 

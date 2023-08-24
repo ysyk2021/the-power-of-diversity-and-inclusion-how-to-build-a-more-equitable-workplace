@@ -1,5 +1,3 @@
-Common Misconceptions About Diversity and Inclusion
-============================================================================
 
 There are many misconceptions about diversity and inclusion in the workplace. In this chapter, we will discuss some of the most common misconceptions and why they are inaccurate.
 

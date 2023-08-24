@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Diversity and Inclusion
-============================================================
 
 Leveraging technology is an important aspect of building a more equitable workplace culture. In this chapter, we will discuss techniques for identifying diversity and inclusion technologies and resources, using technology to enhance diversity and inclusion experiences, fostering accessibility and inclusivity, and avoiding information overload.
 

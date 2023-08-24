@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-==========================================================================================
 
 Developing your diversity and inclusion skills is essential for building a more equitable and successful organization. In this chapter, we will discuss how to utilize feedback and coaching to develop your diversity and inclusion skills in the workplace.
 

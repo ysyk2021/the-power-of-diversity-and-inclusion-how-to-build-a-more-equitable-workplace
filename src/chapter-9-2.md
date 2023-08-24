@@ -1,5 +1,3 @@
-Using Technology to Enhance Diversity and Inclusion Experiences
-=============================================================================================================================
 
 Using technology to enhance diversity and inclusion experiences can help create a more inclusive workplace environment. In this chapter, we will discuss techniques for using technology to enhance diversity and inclusion experiences.
 

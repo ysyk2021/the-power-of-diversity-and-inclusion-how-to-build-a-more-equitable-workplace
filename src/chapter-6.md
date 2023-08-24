@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Diversity and Inclusion Skills
-=========================================================
 
 Developing your diversity and inclusion skills is essential for building a more equitable and successful organization. In this chapter, we will discuss techniques for understanding the principles of effective diversity and inclusion, developing strategies for leading diversity and inclusion, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

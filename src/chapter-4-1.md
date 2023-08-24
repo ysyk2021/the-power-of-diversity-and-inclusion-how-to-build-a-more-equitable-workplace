@@ -1,5 +1,3 @@
-The Benefits of Focusing on Diversity
-======================================================================================
 
 Focusing on diversity is essential for building a more equitable and successful workplace. In this chapter, we will discuss the benefits of focusing on diversity and why it is important to prioritize diversity initiatives.
 

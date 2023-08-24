@@ -1,5 +1,3 @@
-Techniques for Cultivating a Diverse and Inclusive Mindset
-=================================================================================================================
 
 Cultivating a diverse and inclusive mindset is essential for building a more equitable and successful organization. In this chapter, we will discuss techniques for cultivating a diverse and inclusive mindset.
 

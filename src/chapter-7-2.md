@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-==========================================================================================================
 
 Managing resistance to diversity and inclusion is an important aspect of building a more equitable workplace. In this chapter, we will discuss strategies for overcoming resistance to diversity and inclusion initiatives.
 

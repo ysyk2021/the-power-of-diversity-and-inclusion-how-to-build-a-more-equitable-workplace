@@ -1,5 +1,3 @@
-Fostering Continuous Learning and Improvement
-========================================================================================================
 
 Fostering continuous learning and improvement is essential for developing your diversity and inclusion skills in the workplace. In this chapter, we will discuss how to foster continuous learning and improvement to build a more equitable and successful organization.
 

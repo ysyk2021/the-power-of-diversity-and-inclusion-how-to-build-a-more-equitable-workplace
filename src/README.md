@@ -1,4 +1,3 @@
-# Introduction
 
 Diversity and inclusion have become buzzwords in the workplace in recent years. While the concept of diversity has been around for a long time, it has only been in the last decade or so that companies have started to prioritize building diverse and inclusive workplaces. This is partly due to changing demographics and the realization that a diverse workforce can bring many benefits to organizations.
 

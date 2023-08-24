@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-===============================================================================================
 
 Fostering knowledge sharing and mentorship is an important component of creating a diverse and inclusive workplace culture. In this chapter, we will discuss techniques for fostering knowledge sharing and mentorship.
 

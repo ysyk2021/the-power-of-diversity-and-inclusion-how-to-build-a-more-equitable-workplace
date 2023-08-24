@@ -1,5 +1,3 @@
-Chapter 8: Creating a Diverse and Inclusive Culture
-===================================================
 
 Creating a diverse and inclusive workplace culture is essential for building a more equitable and successful organization. In this chapter, we will discuss techniques for encouraging proactive diversity and inclusion across the organization, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating diversity and inclusion-based achievements.
 

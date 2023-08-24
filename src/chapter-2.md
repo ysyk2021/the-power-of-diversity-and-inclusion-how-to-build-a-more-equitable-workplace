@@ -1,5 +1,3 @@
-Chapter 2: Defining Diversity and Inclusion
-===========================================
 
 Defining diversity and inclusion is an essential step towards building a more equitable workplace. In this chapter, we will provide an overview of diversity and inclusion, discuss the science behind diversity and inclusion, and provide techniques for assessing your personal approach to diversity and inclusion.
 

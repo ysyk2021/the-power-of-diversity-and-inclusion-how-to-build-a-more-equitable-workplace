@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-==========================================================================================
 
 Addressing fear and uncertainty is an important aspect of managing resistance to diversity and inclusion initiatives. In this chapter, we will discuss strategies for addressing fear and uncertainty in the workplace.
 

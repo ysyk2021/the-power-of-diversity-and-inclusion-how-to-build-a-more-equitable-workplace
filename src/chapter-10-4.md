@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Adapting to changes in the workplace is essential for building a more equitable workplace culture. In this chapter, we will discuss techniques for adapting to changes in the workplace while measuring results and learning from experience.
 

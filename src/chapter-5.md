@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Diversity and Inclusion Skills in the Workplace
-==========================================================================
 
 Maximizing your diversity and inclusion skills in the workplace is essential for building a more equitable and successful organization. In this chapter, we will discuss techniques for identifying opportunities to embrace diversity at work, finding ways to apply inclusion to your job, communicating effectively through diversity and inclusion, and fostering collaboration with coworkers.
 

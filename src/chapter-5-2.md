@@ -1,5 +1,3 @@
-Finding Ways to Apply Inclusion to Your Job
-=======================================================================================================================
 
 Maximizing your diversity and inclusion skills in the workplace is essential for building a more equitable and successful organization. In this chapter, we will discuss how to find ways to apply inclusion to your job.
 

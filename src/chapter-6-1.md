@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Diversity and Inclusion
-============================================================================================================================
 
 Understanding the principles of effective diversity and inclusion is essential for building a more equitable and successful organization. In this chapter, we will discuss how to develop your diversity and inclusion skills by understanding these principles.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Diversity and Inclusion
-========================================================================================================================
 
 Developing empathy and compassion is an essential aspect of building a diverse and inclusive mindset. In this chapter, we will discuss techniques for developing empathy and compassion through diversity and inclusion.
 

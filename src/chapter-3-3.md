@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=============================================================================================
 
 Developing a diverse and inclusive mindset is an essential step towards building a more equitable workplace. In this chapter, we will discuss techniques for setting realistic goals and objectives related to diversity and inclusion.
 

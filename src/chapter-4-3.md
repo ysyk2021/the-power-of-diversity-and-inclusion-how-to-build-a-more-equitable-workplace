@@ -1,5 +1,3 @@
-Analyzing the Impact of Diversity on Individuals and Organizations
-===================================================================================================================
 
 Understanding the power of diversity is essential for building a more equitable and successful organization. In this chapter, we will discuss how to analyze the impact of diversity on individuals and organizations.
 

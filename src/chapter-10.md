@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Measuring results and learning from experience are essential components of building a more equitable workplace. In this chapter, we will discuss techniques for tracking progress, reflecting on your experiences, continuous learning, and adapting to changes in the workplace.
 

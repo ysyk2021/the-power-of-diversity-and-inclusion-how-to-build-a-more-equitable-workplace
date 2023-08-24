@@ -1,5 +1,3 @@
-Identifying Opportunities to Embrace Diversity at Work
-==================================================================================================================================
 
 Maximizing your diversity and inclusion skills in the workplace is essential for building a more equitable and successful organization. In this chapter, we will discuss how to identify opportunities to embrace diversity at work.
 

@@ -1,5 +1,3 @@
-Celebrating Diversity and Inclusion-Based Achievements
-===========================================================================================================
 
 Celebrating diversity and inclusion-based achievements is an important component of creating a diverse and inclusive workplace culture. In this chapter, we will discuss techniques for celebrating diversity and inclusion-based achievements.
 

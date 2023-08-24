@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================
 
 Reflection and self-evaluation are essential for building a more equitable workplace through diversity and inclusion. In this chapter, we will discuss techniques for reflecting on and evaluating personal approaches to diversity and inclusion.
 

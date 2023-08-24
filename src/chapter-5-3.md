@@ -1,5 +1,3 @@
-Communicating Effectively through Diversity and Inclusion
-=====================================================================================================================================
 
 Effective communication is key to building a more equitable workplace. In this chapter, we will discuss techniques for maximizing your diversity and inclusion skills in the workplace by communicating effectively.
 

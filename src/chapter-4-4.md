@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-============================================================================
 
 Addressing limiting beliefs is essential for understanding the power of diversity in the workplace. In this chapter, we will discuss how to address limiting beliefs and embrace a more inclusive workplace environment.
 

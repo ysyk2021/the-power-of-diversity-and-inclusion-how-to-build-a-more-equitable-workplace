@@ -1,5 +1,3 @@
-Fostering Collaboration with Coworkers
-==================================================================================================================
 
 Fostering collaboration with coworkers is an important aspect of building a more equitable workplace. In this chapter, we will discuss techniques for maximizing your diversity and inclusion skills in the workplace by fostering collaboration with coworkers.
 
