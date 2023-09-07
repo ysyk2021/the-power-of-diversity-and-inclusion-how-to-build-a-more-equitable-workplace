@@ -8,3 +8,7 @@ This book, "The Power Of Diversity And Inclusion: How To Build A More Equitable 
 By reading this book, you will gain a deeper understanding of why diversity and inclusion are critical to the success of your organization and how you can create a more equitable workplace for all employees. Whether you are a manager, HR professional, or employee, this book will provide valuable insights and practical tools to help you build a more diverse and inclusive workplace.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
