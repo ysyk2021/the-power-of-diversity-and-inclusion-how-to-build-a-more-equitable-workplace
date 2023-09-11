@@ -1,5 +1,4 @@
-Chapter 11: Using Technology to Enhance Diversity and Inclusion Experiences
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the ways technology can be leveraged to enhance diversity and inclusion experiences in the workplace. By harnessing the power of technology, organizations can create more inclusive environments, foster collaboration, and provide equitable opportunities for all employees.
 

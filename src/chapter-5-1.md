@@ -1,5 +1,4 @@
-Chapter 6: Identifying Opportunities to Embrace Diversity at Work
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for identifying opportunities to embrace diversity in the workplace. By recognizing and leveraging these opportunities, organizations can harness the power of diversity to drive innovation, collaboration, and success.
 

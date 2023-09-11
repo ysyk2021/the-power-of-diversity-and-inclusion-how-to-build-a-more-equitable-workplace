@@ -1,5 +1,4 @@
-Chapter 9: Encouraging Proactive Diversity and Inclusion Across the Organization
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of encouraging proactive diversity and inclusion practices across the organization. By fostering a culture where all employees take ownership of diversity and inclusion initiatives, organizations can create a sustainable and impactful approach to building an equitable workplace.
 

@@ -1,5 +1,4 @@
-Chapter 12: Developing Strategies for Leading Diversity and Inclusion
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the process of developing strategies for leading diversity and inclusion in your organization. Creating an inclusive workplace requires intentional efforts, strong leadership, and comprehensive strategies that foster a culture of belonging and respect. We will discuss key considerations, steps, and best practices for developing effective strategies to lead diversity and inclusion initiatives.
 

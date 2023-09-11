@@ -1,5 +1,4 @@
-Chapter 6: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the concept of fostering a growth mindset. By cultivating a growth mindset, individuals can embrace challenges, learn from failures, and continuously develop their skills and abilities to foster a more inclusive and equitable workplace.
 

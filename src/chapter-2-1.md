@@ -1,5 +1,4 @@
-Chapter 1: Overview of Diversity and Inclusion
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this opening chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will provide an overview of diversity and inclusion, setting the foundation for understanding their significance in creating a more equitable workplace. We will explore the definitions of diversity and inclusion, examine the benefits they bring, and highlight the need for organizations to prioritize these concepts in today's society.
 

@@ -1,5 +1,4 @@
-Chapter 9: Fostering Collaboration with Coworkers
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for fostering collaboration with coworkers in the context of diversity and inclusion. By creating a collaborative work environment, organizations can leverage the diverse perspectives and talents of their employees to drive innovation, productivity, and overall success.
 

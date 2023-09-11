@@ -1,5 +1,4 @@
-Chapter 4: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of setting realistic goals and objectives in the context of diversity and inclusion. By establishing meaningful and achievable targets, organizations can effectively drive progress towards building a more equitable and inclusive workplace.
 

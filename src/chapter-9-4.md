@@ -1,5 +1,4 @@
-Chapter 6: Avoiding Information Overload
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for avoiding information overload when navigating the complexities of diversity and inclusion. As individuals strive to cultivate a more equitable workplace, it is important to find a balance between staying informed and avoiding overwhelming amounts of information.
 

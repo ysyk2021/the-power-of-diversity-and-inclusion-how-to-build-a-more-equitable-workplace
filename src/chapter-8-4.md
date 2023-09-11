@@ -1,5 +1,4 @@
-Chapter 8: Celebrating Diversity and Inclusion-Based Achievements
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of celebrating diversity and inclusion-based achievements. By recognizing and honoring the progress made in fostering diversity and inclusion, organizations can create a positive and inclusive culture where all individuals feel valued and appreciated.
 

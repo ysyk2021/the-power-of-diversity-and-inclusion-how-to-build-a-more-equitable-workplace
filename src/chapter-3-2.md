@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the significance of utilizing positive self-talk and visualization techniques. By cultivating a positive mindset and harnessing the power of visualization, individuals can overcome obstacles, enhance confidence, and contribute to a more inclusive and equitable workplace.
 

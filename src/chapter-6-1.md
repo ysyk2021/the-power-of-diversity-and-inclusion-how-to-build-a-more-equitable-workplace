@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Principles of Effective Diversity and Inclusion
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the principles that underpin effective diversity and inclusion practices. Understanding these principles is crucial for creating a truly inclusive workplace culture where all employees feel valued, respected, and empowered. We will delve into key concepts and strategies that guide organizations in their journey towards building an equitable and diverse work environment.
 

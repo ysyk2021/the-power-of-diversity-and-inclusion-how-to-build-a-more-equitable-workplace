@@ -1,5 +1,4 @@
-Chapter 8: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of continuous learning and improvement in building a more equitable workplace. By fostering a culture of ongoing learning, individuals can stay informed, adapt to changing needs, and continuously improve their diversity and inclusion practices.
 

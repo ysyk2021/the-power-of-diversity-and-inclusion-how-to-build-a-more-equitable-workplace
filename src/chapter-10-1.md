@@ -1,5 +1,4 @@
-Chapter 10: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the significance of tracking progress and measuring results in the journey towards building a more equitable workplace. By establishing clear metrics, collecting data, and regularly assessing progress, organizations can ensure accountability and drive meaningful change.
 

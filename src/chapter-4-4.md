@@ -1,5 +1,4 @@
-Chapter 7: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of addressing limiting beliefs that hinder progress towards creating a more inclusive and equitable workplace. We will delve into common misconceptions, biases, and stereotypes that can impede diversity and inclusion efforts. By challenging these limiting beliefs, we can foster a culture that embraces diversity and promotes meaningful change.
 

@@ -1,5 +1,4 @@
-Chapter 5: Providing Training and Professional Development Opportunities
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will delve into the significance of providing training and professional development opportunities to foster diversity and inclusion in the workplace. By investing in employees' growth and equipping them with the necessary skills and knowledge, organizations can create an inclusive culture that maximizes the potential of their diverse workforce.
 

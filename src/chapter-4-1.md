@@ -1,5 +1,4 @@
-Chapter 4: The Benefits of Focusing on Diversity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the numerous benefits that organizations can reap by focusing on diversity. Embracing diversity goes beyond mere compliance; it fosters innovation, drives business success, and creates a more inclusive and engaging work environment. We will delve into the advantages of prioritizing diversity and highlight its positive impact on various aspects of organizational performance.
 

@@ -1,5 +1,4 @@
-Chapter 11: Addressing Fear and Uncertainty
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for addressing fear and uncertainty that individuals may experience in the context of diversity and inclusion. By addressing these emotions effectively, organizations can create a more supportive and inclusive work environment.
 

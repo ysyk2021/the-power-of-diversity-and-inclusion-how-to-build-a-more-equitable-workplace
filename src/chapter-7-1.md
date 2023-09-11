@@ -1,5 +1,4 @@
-Chapter 11: Identifying Common Sources of Resistance to Diversity and Inclusion
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the common sources of resistance that organizations may encounter when implementing diversity and inclusion initiatives. By understanding these sources, we can proactively address and overcome resistance, fostering a culture that embraces diversity and promotes inclusivity.
 

@@ -1,5 +1,4 @@
-Chapter 6: Fostering Knowledge Sharing and Mentorship
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of fostering knowledge sharing and mentorship to create an inclusive and supportive work environment. By encouraging the exchange of knowledge, experiences, and perspectives, organizations can harness the power of diversity and promote professional growth for all employees.
 

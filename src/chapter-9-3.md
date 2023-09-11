@@ -1,5 +1,4 @@
-Chapter 6: Fostering Accessibility and Inclusivity
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of fostering accessibility and inclusivity in the workplace. By creating an environment where all individuals feel welcome, valued, and empowered to participate fully, organizations can maximize the potential of their diverse workforce.
 

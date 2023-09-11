@@ -1,5 +1,4 @@
-Chapter 9: Communicating Effectively through Diversity and Inclusion
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of effective communication in the context of diversity and inclusion. We will delve into strategies and best practices that promote meaningful dialogue, foster understanding, and create an inclusive environment where diverse voices are valued.
 

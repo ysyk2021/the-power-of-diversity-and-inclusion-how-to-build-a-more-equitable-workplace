@@ -1,5 +1,4 @@
-Chapter 8: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of utilizing feedback and coaching to foster an inclusive and equitable work environment. Feedback and coaching play a critical role in supporting employee development, promoting fairness, addressing biases, and cultivating a culture of continuous learning. We will delve into strategies and best practices for effectively leveraging feedback and coaching to enhance diversity and inclusion efforts.
 

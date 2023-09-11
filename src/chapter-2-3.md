@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Diversity and Inclusion
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will guide you through the process of assessing your personal approach to diversity and inclusion. Understanding your own beliefs, biases, and behaviors is crucial in creating meaningful change and fostering an inclusive environment. We will explore various aspects to consider when assessing your personal approach, allowing you to identify areas for growth and development.
 

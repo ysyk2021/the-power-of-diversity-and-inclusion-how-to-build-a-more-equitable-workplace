@@ -1,5 +1,4 @@
-Chapter 9: Developing Strategies for Overcoming Resistance
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for overcoming resistance that organizations may encounter when implementing diversity and inclusion initiatives. By proactively addressing and managing resistance, organizations can create a more inclusive and equitable work environment.
 

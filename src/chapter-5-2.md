@@ -1,5 +1,4 @@
-Chapter 13: Finding Ways to Apply Inclusion to Your Job
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore strategies for individuals to apply inclusion principles to their job roles. By actively embracing inclusion, individuals can contribute to creating a more equitable and inclusive workplace environment.
 

@@ -1,5 +1,4 @@
-Chapter 9: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of fostering continuous learning and improvement in creating a diverse and inclusive workplace. Organizations that prioritize ongoing learning and growth not only embrace diversity and inclusion but also constantly evolve to meet the changing needs of their employees and the broader society. We will delve into key strategies and practices that foster continuous learning and improvement in the context of diversity and inclusion.
 

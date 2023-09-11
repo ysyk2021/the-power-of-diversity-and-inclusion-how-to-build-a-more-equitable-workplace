@@ -1,5 +1,4 @@
-Chapter 8: Adapting to Changes in the Workplace
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of adapting to changes in the workplace. As organizations strive to create a more equitable environment, it is crucial to embrace change, foster flexibility, and navigate transitions effectively.
 

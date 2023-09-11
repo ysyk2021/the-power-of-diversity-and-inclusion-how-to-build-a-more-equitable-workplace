@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Science Behind Diversity and Inclusion
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will delve into the science behind diversity and inclusion, exploring the research and theories that support the importance of these concepts. By understanding the scientific evidence, we can gain deeper insights into the benefits of diversity and inclusion and make informed decisions when implementing strategies in the workplace.
 

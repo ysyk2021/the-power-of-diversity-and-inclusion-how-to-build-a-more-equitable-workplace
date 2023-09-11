@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Compassion through Diversity and Inclusion
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of developing empathy and compassion in the context of diversity and inclusion. We will discuss how cultivating these qualities can foster understanding, promote inclusivity, and create a more empathetic work environment.
 

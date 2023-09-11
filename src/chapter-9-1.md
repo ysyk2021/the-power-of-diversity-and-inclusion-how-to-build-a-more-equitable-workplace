@@ -1,5 +1,4 @@
-Chapter 12: Identifying Diversity and Inclusion Technologies and Resources
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore the importance of identifying diversity and inclusion technologies and resources. By leveraging technology tools and accessing relevant resources, organizations can enhance their diversity and inclusion efforts and create a more equitable workplace.
 

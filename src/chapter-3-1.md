@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Cultivating a Diverse and Inclusive Mindset
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore various techniques for cultivating a diverse and inclusive mindset. By developing an understanding and appreciation for diversity, individuals can contribute to a workplace that embraces and celebrates differences, fostering a more equitable and inclusive environment.
 

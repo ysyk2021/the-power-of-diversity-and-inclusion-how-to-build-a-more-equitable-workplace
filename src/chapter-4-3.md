@@ -1,5 +1,4 @@
-Chapter 5: Analyzing the Impact of Diversity on Individuals and Organizations
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will delve into the profound impact that diversity has on individuals and organizations. Understanding this impact is crucial for organizations to recognize the value and benefits of diversity, as well as to effectively leverage it to drive innovation, productivity, and overall success. We will explore both the individual and organizational perspectives and analyze the positive influence of diversity across various dimensions.
 

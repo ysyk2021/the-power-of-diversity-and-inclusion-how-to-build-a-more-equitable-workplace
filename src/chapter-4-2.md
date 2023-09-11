@@ -1,5 +1,4 @@
-Chapter 7: Recognizing How Diversity Contributes to Success
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Diversity and Inclusion: How to Build a More Equitable Workplace," we will explore how diversity contributes to the success of individuals, teams, and organizations. By understanding the various ways in which diversity drives positive outcomes, organizations can fully embrace its value and leverage it to achieve sustainable success. We will examine the key areas where diversity makes a significant impact and highlight the benefits that arise from fostering a diverse and inclusive work environment.
 
